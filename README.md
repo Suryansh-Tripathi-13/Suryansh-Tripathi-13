@@ -8,7 +8,7 @@ Email Me 👉 ✉️ anshtripathi0880888@gmail.com For Collaboration/Project or 
 * 🌱 I’m currently learning: AI/ML.
 * 📫 How to reach me: anshtripathi0880888@gmail.com.
 * 😄 Pronouns: Ansh.
-⚡ Fun fact: Started with BA & LLB, ended up obsessed with data — best plot twist ever 📈
+*⚡ Fun fact: Started with BA & LLB, ended up obsessed with data — best plot twist ever 📈
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/suryansh-tripathi-13-ansh) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:anshtripathi0880888@gmail.com) 
