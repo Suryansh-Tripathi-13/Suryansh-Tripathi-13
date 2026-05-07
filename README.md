@@ -4,7 +4,7 @@
 
 Email Me 👉 ✉️ anshtripathi0880888@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
-* 🔭 I'm currently working on: India's State-wise Netflix TV Show Dashboard .
+* 🔭 I'm currently working on: Netflix TV Show Dashboard .
 * 🌱 I’m currently learning: AI/ML.
 * 📫 How to reach me: anshtripathi0880888@gmail.com.
 * 😄 Pronouns: Ansh.
